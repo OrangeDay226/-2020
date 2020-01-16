@@ -7,3 +7,4 @@ to see behind walls,
 to draw closer, 
 to find each other and to feel. 
 That is the purpose of LIFE.
+Hello,New Wolrld.
